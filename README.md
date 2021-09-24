@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sykqutie
+- 👋 Hi, I’m @Syk.Sachiwara
 - 👀 I’m interested in rpw only
 - 🌱 I’m currently learning the oc blogging .
 - 💞️ I’m looking to collaborate on oc blogger there.
